@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## Saidakro  Sharipov, Junior Web Developer. 
+## Saidakrom  Sharipov, Junior Web Developer. 
 ### +998993337066 
 
 <a href="http://www.saidakrom.uz" > <h2> My Web site</h2></a>
